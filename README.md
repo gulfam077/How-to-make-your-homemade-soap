@@ -5,6 +5,8 @@ How do you make your homemade soap? Here are 3 easy recipes © Dmitrii Shironoso
 Saponification is a chemical reaction that can be summarized as follows: fat + soft drink => soap + glycerine. The main quality of soap is to dissolve fatty substances. Remember that saponification takes about 24 hours, so solid soap remains corrosive during this time. If you touch it, rinse it well.
 
 Necessary utensils
+you can get almost all soap ingredients in the UK from <a href="https://eternitysoaplab.com">Eternity Soap Lab</a>
+, the best soap making supplies in the uk.
 a glass or stainless steel container
 Wooden spoon. Warning: All aluminum or plastic utensils should be avoided due to soda, an essential part of soap making.
 Vaseline (for greasing the molds)
