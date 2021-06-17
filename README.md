@@ -14,6 +14,7 @@ mussels
 
 Basic ingredients and recipes
 Most of the data here is in grams, not milliliters. Remember that 1 kilogram of oil is not the same as 1 liter of oil (one liter is lighter: for example 920 g for olive oil).
+And 1 more thing, you can check these <a href="https://eternitysoaplab.com/collections/silicone-moulds">Silicone Moulds</a>, and can purchase on affordable rates in the UK.
 
 For a classic soap
 450 g peanut oil
@@ -54,4 +55,4 @@ Let stand for 1 or 2 days.
 Remove the soap from the mold (with gloves).
 Let it stand in a very dry place for a month.
 After preparing the soap
-Be sure to wash all utensils and work surface carefully, and weigh those used to make the soap with vinegar water. Be sure to wash the gloves with vinegar water before taking them off. Be careful after taking the soap out of the mold, it is still corrosive ...
+Be sure to wash all utensils and work surface carefully, and weigh those used to make the soap with vinegar water. Be sure to wash the gloves with vinegar water before taking them off. Be careful after taking the soap out of the mould, it is still corrosive .
